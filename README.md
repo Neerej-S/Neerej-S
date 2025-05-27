@@ -1,6 +1,7 @@
 # 💫 About Me:
 Hello There
-https://tenor.com/en-GB/view/hello-there-gif-5677380953331354485
+![3ornk57KwDXf81rjWM](https://github.com/user-attachments/assets/eaab21a4-7c19-44bf-83f1-3a6512b9d890)
+
 
 My Name is Neerej and I love to code. I also love to explore and gain knowledge on topics which interest me. <br> <br>LinkedIn :  www.linkedin.com/in/neerej-s-19420224b
 
