@@ -1,5 +1,8 @@
 # 💫 About Me:
-Hello There, My Name is Neerej and I love to code. I also love to explore and gain knowledge on topics which interest me. <br> <br>LinkedIn :  www.linkedin.com/in/neerej-s-19420224b
+Hello There
+https://tenor.com/en-GB/view/hello-there-gif-5677380953331354485
+
+My Name is Neerej and I love to code. I also love to explore and gain knowledge on topics which interest me. <br> <br>LinkedIn :  www.linkedin.com/in/neerej-s-19420224b
 
 
 # 💻 Tech Stack:
